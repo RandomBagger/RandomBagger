@@ -3,6 +3,8 @@
 ### 👀 About Me
 I'm passionate about **Psychology**, **Computers**, and anything that gets the adrenaline pumping. Always curious and learning new things that excite the mind and spirit.
 
+I see **pornography as a form of art** — a medium that expresses raw human emotions, desires, and connections. In that sense, I consider myself an **artist**, exploring and creating in a space where boundaries are pushed and new forms of expression are discovered.
+
 ### 🌱 Currently Exploring
 I'm diving deep into research on the **effects of pornographic content on human psychology** — uncovering how it shapes thoughts, behaviors, and the human experience.
 
@@ -18,6 +20,3 @@ Feel free to connect with me on [Instagram](https://www.instagram.com/randombagg
 ### ⚡ Fun Fact
 **Women get erections too.**
 
----
-
-This is a ✨ special ✨ repository because it's not just code, but a reflection of creativity and exploration. Click the preview link to see the magic happen.
