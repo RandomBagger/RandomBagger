@@ -17,6 +17,8 @@ Feel free to connect with me on [Instagram](https://www.instagram.com/randombagg
 ### 😄 Pronouns
 **Legend** / **The Chosen One**
 
-### ⚡ Fun Fact
-**Women get erections too.**
-
+### ⚡ Fun Facts
+- **Women get erections too.**
+- Your brain is your most powerful sexual organ.
+- Humans are one of the few species that engage in sexual activity for pleasure.
+- There's a type of mushroom that, when smelled, can trigger spontaneous orgasms in some women.
